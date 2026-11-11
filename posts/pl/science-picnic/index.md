@@ -27,4 +27,4 @@ Najlepsza część tego dnia? Zdecydowanie bezpośredni kontakt z ludźmi. Możl
 
 Wielkie brawa dla całej ekipy za wspólną pracę, świetną organizację i niesłabnącą energię od pierwszej do ostatniej minuty pikniku. Pokazaliśmy, że technologia łączy pokolenia! 🤝
 
-Współpracownicy: Jakub Kamionka, Yurii Holovko, Dawid Borowski.
+[Jakub Kamionka](https://www.linkedin.com/in/jakubkamionka/), [Yurii Holovko](https://www.linkedin.com/in/yurii-holovko/), [Dawid Borowski](https://www.linkedin.com/in/dawidborowski/).

@@ -27,4 +27,4 @@ The best part of the day was the direct contact with people: sharing passion, an
 
 Huge applause to the whole team for the joint work, great organization, and unwavering energy from the first to the last minute of the picnic. We showed that technology connects generations!
 
-Collaborators: Jakub Kamionka, Yurii Holovko, Dawid Borowski.
+[Jakub Kamionka](https://www.linkedin.com/in/jakubkamionka/), [Yurii Holovko](https://www.linkedin.com/in/yurii-holovko/), [Dawid Borowski](https://www.linkedin.com/in/dawidborowski/).
